@@ -13,7 +13,7 @@ By understanding the food symbolisms, new and important meanings open up in the 
 
 [Epistle of Barnabas](https://github.com/scrollmapper/bible_databases_deuterocanonical/blob/master/sources/en/the-general-epistle-of-barnabas/the-general-epistle-of-barnabas.md)
 
-## The Animal and It's Meaning...
+## The Animal and Its Meaning...
 
 ### The Unclean
 
@@ -65,7 +65,7 @@ The first patriarchs/matriarchs are bulls and heifers. The first of the sheep wa
 
 We already know from Barnabas what the significance of these animals is. Test the symbols in your own reasoning and see if they add up. Esau was certainly a pig, Jacob was indeed the first sheep, and the first fathers were exemplary in the strength of their faith, making them bulls. (Note that Jacob's years were significantly less than his father's, as he stated, showing the transformation of types.)
 
-Of extreme importance to us in this parable is the occassional transformation of a MAN to a BEAST, or a BEAST to a MAN. Or, relatively speaking, An Angel to a Man, or a Man to an Angel. 
+Of extreme importance to us in this parable is the occasional transformation of a MAN to a BEAST, or a BEAST to a MAN. Or, relatively speaking, An Angel to a Man, or a Man to an Angel. 
 
 Why is this important? Because we must seek to be elevated above the nature of a beast and be rescued from this curse, as Enoch and Elijah were in this parable.
 
@@ -178,7 +178,7 @@ If you wish to see more application of the thought, I will paraphrase and explai
 
 ### Applications of the Points, and Manner of Reasoning
 
-A simple key is given in the scripures that the heart and tongue are closely related in symbol:
+A simple key is given in the scriptures that the heart and tongue are closely related in symbol:
 
 > Proverbs 23:7: For as he thinketh in his heart, so is he...
 
@@ -186,7 +186,7 @@ Also:
 
 > Matthew 12:34 O generation of **vipers**, how can ye, being evil, speak good things? for out of the abundance of the **heart** the mouth speaketh.
 
-Notice again, the animal (viper) is identified by the heart, which is revealed by the toungue. 
+Notice again, the animal (viper) is identified by the heart, which is revealed by the tongue. 
 
 #### The Wild Beast
 
