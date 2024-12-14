@@ -228,6 +228,8 @@ Which loops us back to the very same symbolism in Job concerning evil doctrine, 
 
 To put it simply, the identity of the **Wild Beast** is largely known through the pursuit of riches by evil means. And really, simply stated, the pursuit of riches. (Matthew 6:24)
 
+And the wrath of God is poured out upon such people.
+
 **This is why the power of the Wild Beast is enforced through buying and selling. (Revelation 13)**
 
 ## The Final Application 
