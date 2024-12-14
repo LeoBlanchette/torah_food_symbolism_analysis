@@ -250,3 +250,7 @@ The Book of Enoch:
 
 https://github.com/scrollmapper/bible_databases_deuterocanonical/blob/master/sources/en/1-enoch/1-enoch.md
 
+
+Source Article:
+
+https://github.com/LeoBlanchette/torah_food_symbolism_analysis
