@@ -188,3 +188,49 @@ Notice again, the animal (viper) is identified by the heart, which is revealed b
 
 #### The Wild Beast
 
+Remember this statement above? 
+
+> we must seek to be elevated above the nature of a beast and be rescued from this curse, as Enoch and Elijah were in this parable.
+
+Like it or not, the default state of the human race is a beast, though Genesis does stipulate that God created domestic and wild animals distinctly different. But the truth still holds:
+
+> Ecclesiastes 3:19 For that which befalleth the sons of men befalleth beasts; even one thing befalleth them: as the one dieth, so dieth the other; yea, they have all one breath; so that a man hath no preeminence above a beast...
+
+And yet we find in the same chapter that there is a difference to be found: 
+
+> Who knoweth the **spirit of man that goeth upward**, and the spirit of the **beast that goeth downward** to the earth?
+
+Ultimately the beast goes to hell, the man goes to heaven. 
+
+This is shown in Psalms: 
+
+> Psalm 49:20 Man that is in honour, and understandeth not, is like the beasts that perish.
+
+This is confirmed in the Story of the Rich Man and Lazarus, where the rich man (in honor) goes to hell. Lazarus goes to heaven. So the rich man is the beast, and lazarus is the man. 
+
+This same example can be recalled in the former Proverbs example: **Labor not to be rich.**
+
+Which loops us back to the very same symbolism in Job concerning evil doctrine, food, and a bad outcome for a serpentine man:
+
+**Job 20:12-17:**
+
+> 12 **Though wickedness be sweet in his mouth**, though he hide it under his tongue;
+> 
+> 13 Though he spare it, and forsake it not; but keep it still within his mouth:
+> 
+> 14 **Yet his meat in his bowels is turned, it is the gall of asps within him**.
+>
+> 15 **He hath swallowed down riches, and he shall vomit them up again: God shall cast them out of his belly.**
+> 
+> 16 He shall suck the poison of asps: the viper's tongue shall slay him.
+>
+> 17 He shall not see the rivers, the floods, the brooks of honey and butter.
+
+To put it simply, the identity of the **Wild Beast** is largely known through the pursuit of riches by evil means. And really, simply stated, the pursuit of riches. (Matthew 6:24)
+
+**This is why the power of the Wild Beast is enforced through buying and selling. (Revelation 13)**
+
+## The Final Application 
+
+While the food laws of the Torah can be understood through literal means, carnally, the better goal is to understand their meaning, and to avoid the councils and people that the unclean foods represent, and seek out the councils and the people that the clean foods represent. 
+
