@@ -11,7 +11,7 @@ Symbolically, **food is doctrine, doctrine is food.** This is an important key i
 By understanding the food symbolisms, new and important meanings open up in the salvation story, the interpretation of texts, and even understanding the nature and identity of the Wild Beast (a figure of Satan and his kingdom) found throughout the scriptures.
 
 
-[Epistle of Barnabas](https://github.com/scrollmapper/bible_databases_deuterocanonical/blob/master/sources/en/_the_general_epistle_of_barnabas/_the_general_epistle_of_barnabas.md)
+[Epistle of Barnabas](https://github.com/scrollmapper/bible_databases_deuterocanonical/blob/master/sources/en/the-general-epistle-of-barnabas/the-general-epistle-of-barnabas.md)
 
 ## The Animal and It's Meaning...
 
@@ -24,7 +24,7 @@ By understanding the food symbolisms, new and important meanings open up in the 
 | **Lamprey, Polypus, Cuttle-fish** | Do not be like impious people condemned to death, dwelling in wickedness                                          |
 | **Hare (Rabbit)**    | Do not indulge in unnatural lusts                                                                                            |
 | **Hyaena**           | Do not be an adulterer                                                                                                       |
-| **Weasel**           | Do not not do uncleanness with thy mouth concerning food                                                                   |
+| **Weasel**           | Do not not do uncleanness with thy mouth concerning food [Note: Weasels are blood drinkers.]                                                                 |
 
 ### The Clean
 
@@ -164,7 +164,9 @@ So we see the situation is similar to that of Proverbs: The boys sat down with t
 
 For those who insist on literal meanings and food laws, I emphasize context: On one hand, the story speaks of food, but ends with knowledge (the same pattern as the account in Proverbs), emphasizing the whole parable.
 
-This is of huge importance in the context of Babylon because, as the book of Enoch and Jubilees teaches us, Babylon inherited all of the teachings of the Watchers and were
+This is of huge importance in the context of Babylon because, as the book of Enoch and Jubilees teaches us, Babylon inherited all of the teachings of the Watchers, the first of the major profane and unclean doctrines that corrupted people who learned them. 
+
+> Enoch 69:11 For men were created exactly like the angels, to the intent that they should continue pure and righteous, and death, which destroys everything, could not have taken hold of them, **but through this their knowledge they are perishing**, and through this power it is consuming me. 
 
 ## A Summary of Main Parts
 
@@ -200,7 +202,7 @@ And yet we find in the same chapter that there is a difference to be found:
 
 > Who knoweth the **spirit of man that goeth upward**, and the spirit of the **beast that goeth downward** to the earth?
 
-Ultimately the beast goes to hell, the man goes to heaven. 
+Ultimately the beast goes to hell, the man eventually goes to heaven. 
 
 This is shown in Psalms: 
 
@@ -234,5 +236,17 @@ And the wrath of God is poured out upon such people.
 
 ## The Final Application 
 
-While the food laws of the Torah can be understood through literal means, carnally, the better goal is to understand their meaning, and to avoid the councils and people that the unclean foods represent, and seek out the councils and the people that the clean foods represent. 
+Doctrine, being types of food in symbol, results in knowledge (good or bad). The pattern is the same concerning Adam and Eve, with the **Tree of Knowledge of Good and Evil**. They ate and gained knowledge. So the tree was doctrine of a sort.
+
+While the food laws of the Torah can be understood through literal means, carnally, the better goal is to understand their meaning, and to avoid the counsels and people that the unclean foods represent, and seek out the counsels and the people that the clean foods represent.
+
+### References
+
+The General Epistle of Barnabas:
+
+https://github.com/scrollmapper/bible_databases_deuterocanonical/blob/master/sources/en/the-general-epistle-of-barnabas/the-general-epistle-of-barnabas.md
+
+The Book of Enoch:
+
+https://github.com/scrollmapper/bible_databases_deuterocanonical/blob/master/sources/en/1-enoch/1-enoch.md
 
