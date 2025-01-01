@@ -11,7 +11,7 @@ Symbolically, **food is doctrine, doctrine is food.** This is an important key i
 By understanding the food symbolisms, new and important meanings open up in the salvation story, the interpretation of texts, and even understanding the nature and identity of the Wild Beast (a figure of Satan and his kingdom) found throughout the scriptures.
 
 
-[Epistle of Barnabas](https://github.com/scrollmapper/bible_databases_deuterocanonical/blob/master/sources/en/the-general-epistle-of-barnabas/the-general-epistle-of-barnabas.md)
+[Epistle of Barnabas](https://github.com/scrollmapper/bible_databases_deuterocanonical/blob/master/sources/en/epistle-of-barnabas/epistle-of-barnabas.md)
 
 ## The Animal and Its Meaning...
 
@@ -244,7 +244,7 @@ While the food laws of the Torah can be understood through literal means, carnal
 
 The General Epistle of Barnabas:
 
-https://github.com/scrollmapper/bible_databases_deuterocanonical/blob/master/sources/en/the-general-epistle-of-barnabas/the-general-epistle-of-barnabas.md
+https://github.com/scrollmapper/bible_databases_deuterocanonical/blob/master/sources/en/epistle-of-barnabas/epistle-of-barnabas.md
 
 The Book of Enoch:
 
